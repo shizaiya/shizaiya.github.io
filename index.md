@@ -16,7 +16,9 @@ title: Home
 
 
 質問や相談などありましたら以下の連絡先まで。
+
 [kazuki51](http://discord.com/users/501880207406399499)
+
 [konbukiri](http://discord.com/users/333366548276445185)
 
 
